@@ -1,1 +1,1 @@
- this will be a wonderful adventure
+ Wonderful you are in the game
